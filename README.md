@@ -1,2 +1,2 @@
 A historia a companha um sargento, que e muito disciplinado, e tem como missão de vida servir e proteger a area onde trabalha.
-    Ao decorrer de sua carreira, ele descobriu que nao e so mat@r e prender B@ndid@s, mas ajudar as velinhas e as crianças, tb faz parte da sua função. Ao descobrir isso, ele abandanou a carreira e vou ser programador. 
+    Ao decorrer de sua carreira, ele descobriu que nao e so mat@r e prender B@ndid@s, mas ajudar as velinhas e as crianças, tb faz parte da sua função. Ao descobrir isso, ele abandanou a carreira e foi ser programador. 
