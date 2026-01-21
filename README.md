@@ -1,1 +1,1 @@
-
+E ele tal como o Moises, ele também tinha ciumes do Joaquim, mas por causa do seu talento nato para apanhar patos, ele treinou e treinou ate o superar, dessa maneira ele deixou de ter ciumes, e o que ele via como inveja hoje em dia vê como um rival.
